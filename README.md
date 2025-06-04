@@ -1,1 +1,1 @@
-Meu nome é julia, tenho 15 anos, sou apaixonada em jogar volei, meu sonho é ser perita criminal, gosto de dormir. 
+Meu nome é julia, tenho 15 anos, sou apaixonada em jogar volei, meu sonho é ser perita criminal, gosto de dormir, gosto de praticar esportes alem do volei. Sou uma pessoa completamente dificil de lidar, tenho uma personalidade forte que dificulta algumas possibilidades. 
